@@ -1,4 +1,4 @@
-❤︎ hii hii, js go to my pronoun.cc pls! 
+❤︎ hii hii, js go to my pronoun.cc/strawpage pls! 
 
 I'm onett's #1 fan n lover.... lelelel
 
