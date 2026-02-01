@@ -10,7 +10,7 @@ ABT PONY TOWN:
 
 ᥫ᭡ YES! u can whisper to me, I might not answer but I will sure read it. ᰔ
 
-
+ᥫ᭡ Do NOT take inspiration from my skins without permission.
 
 ┊         ┊       ┊   ┊    ┊        ┊
 ┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
