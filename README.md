@@ -1,16 +1,22 @@
-❤︎ hii hii, js go to my pronoun.cc/strawpage pls! 
+<img width="1020" height="347" alt="image" src="https://github.com/user-attachments/assets/64be4d25-084f-48da-ae3f-0c68f3fb735d" />
+
+❤︎ hii hii, js go to my pronoun.cc/strawpage pls! <img width="36" height="100" alt="image" src="https://github.com/user-attachments/assets/8651231e-5218-4d87-918c-cedad993d5d0" />
+
 
 I'm onett's #1 fan n lover.... lelelel
 
-ABT PONY TOWN:
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/8c8e5fc6-8f91-4f0a-ba0f-e4b55c886ec9" /> ABT PONY TOWN: <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/ee20f18a-320b-4ea6-8dc0-e9abbb011317" />
 
-ᥫ᭡ Cuddles n other stuff is OK but pls dont cover me... like, not a lot, idm a bit of cover!
+𝒢𑄺 Cuddles n other stuff is OK but pls dont cover me completely.
 
-ᥫ᭡ no need to actually interact w me (ik i have dniuf in my name sometimes, but its bc im afk LOL)
+𝒢𑄺 No need to actually interact w me (ik i have dniuf in my name sometimes, but its bc im afk LOL) 
 
-ᥫ᭡ YES! u can whisper to me, I might not answer but I will sure read it. ᰔ
+𝒢𑄺 YES! u can whisper to me, I might not answer but I will sure read it. ♡
 
-ᥫ᭡ Do NOT take inspiration from my skins without permission.
+𝒢𑄺 Do NOT take inspiration from my skins without permission.
+<img width="50" height="55" alt="image" src="https://github.com/user-attachments/assets/660b4328-26ba-42c5-a89d-2e4ca9e80770" />
+<img width="1020" height="224" alt="image" src="https://github.com/user-attachments/assets/4852fbc9-5670-4297-b3a0-0c59f307b3be" />
+
 
 ┊         ┊       ┊   ┊    ┊        ┊
 ┊         ┊       ┊   ┊   ˚★⋆｡˚  ⋆
