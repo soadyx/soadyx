@@ -1,20 +1,33 @@
 <img width="1020" height="347" alt="image" src="https://github.com/user-attachments/assets/64be4d25-084f-48da-ae3f-0c68f3fb735d" />
 
-❤︎ hii hii, js go to my pronoun.cc/strawpage pls ! <img width="36" height="100" alt="image" src="https://github.com/user-attachments/assets/8651231e-5218-4d87-918c-cedad993d5d0" />
+　　　　　　　　　　　　　　　　　　　❤︎ hii hii, js go to my pronoun.cc/strawpage pls ! <img width="36" height="100" alt="image" src="https://github.com/user-attachments/assets/8651231e-5218-4d87-918c-cedad993d5d0" />
 
 
-I'm onett's #1 fan n lover.... lelelel
+　　　　　　　　　　　　　　　　　　　　　　I'm onett's #1 fan n lover.... lelelel
 
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/8c8e5fc6-8f91-4f0a-ba0f-e4b55c886ec9" /> ABT PONY TOWN: <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/ee20f18a-320b-4ea6-8dc0-e9abbb011317" />
+　　　　　　　　　　　　　　　　　　　<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/8c8e5fc6-8f91-4f0a-ba0f-e4b55c886ec9" /> abt pony town : <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/ee20f18a-320b-4ea6-8dc0-e9abbb011317" />
 
-𝒢𑄺 Cuddles n other stuff is OK but pls dont cover me completely.
+　　　　　　　　　　　　　　　　　𝒢𑄺 Cuddles n other stuff is OK but pls dont cover me completely.
+                 
+　　　　　　　　　　　　　　　　　　ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
+　　　　　　　　　　　　　　　　　𝒢𑄺 Im most of the time offtab, but u can freely interact w me !
+                 
+　　　　　　　　　　　　　　　　　　ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
+　　　　　　　　　　　　　　　　　𝒢𑄺 You can whisper to me, I might not answer but I will sure read it. ♡
+                 
+　　　　　　　　　　　　　　　　　　ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
+　　　　　　　　　　　　　　　　　𝒢𑄺 Do NOT take inspiration from my skins without permission pls
+                  
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<img width="90" height="95" alt="image" src="https://github.com/user-attachments/assets/660b4328-26ba-42c5-a89d-2e4ca9e80770" />
+                             
+　　　　　　　　　　　　　　　　　𝜗ৎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&duration=2000&pause=100&color=FFA8D8&center=true&width=435&lines=True+love%2C+oh+!+True+love%2C+oh+!;True+love%2C+oh+!+True+love%2C+oh+!;Wherever+I+go+!+" alt="Typing SVG" /></a> 𝜗ৎ 
 
-𝒢𑄺 Im most of the time offtab, but u can freely interact w me !
+　　　　　　　　　　　　　
+　　　　　　　　　
+　　　　　　　　　　　♡ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ𝜗ৎꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ♡
+     
+<img width="550" height="700" alt="image" src="https://github.com/user-attachments/assets/75443765-32d8-4187-ada2-f266a18cce43" />
 
-𝒢𑄺 You can whisper to me, I might not answer but I will sure read it. ♡
-
-𝒢𑄺 Do NOT take inspiration from my skins without permission.
-<img width="50" height="55" alt="image" src="https://github.com/user-attachments/assets/660b4328-26ba-42c5-a89d-2e4ca9e80770" />
 <img width="1020" height="224" alt="image" src="https://github.com/user-attachments/assets/4852fbc9-5670-4297-b3a0-0c59f307b3be" />
 
 
