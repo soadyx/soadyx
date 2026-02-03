@@ -1,6 +1,6 @@
 <img width="1020" height="347" alt="image" src="https://github.com/user-attachments/assets/64be4d25-084f-48da-ae3f-0c68f3fb735d" />
 
-❤︎ hii hii, js go to my pronoun.cc/strawpage pls! <img width="36" height="100" alt="image" src="https://github.com/user-attachments/assets/8651231e-5218-4d87-918c-cedad993d5d0" />
+❤︎ hii hii, js go to my pronoun.cc/strawpage pls ! <img width="36" height="100" alt="image" src="https://github.com/user-attachments/assets/8651231e-5218-4d87-918c-cedad993d5d0" />
 
 
 I'm onett's #1 fan n lover.... lelelel
@@ -9,9 +9,9 @@ I'm onett's #1 fan n lover.... lelelel
 
 𝒢𑄺 Cuddles n other stuff is OK but pls dont cover me completely.
 
-𝒢𑄺 No need to actually interact w me (ik i have dniuf in my name sometimes, but its bc im afk LOL) 
+𝒢𑄺 Im most of the time offtab, but u can freely interact w me !
 
-𝒢𑄺 YES! u can whisper to me, I might not answer but I will sure read it. ♡
+𝒢𑄺 You can whisper to me, I might not answer but I will sure read it. ♡
 
 𝒢𑄺 Do NOT take inspiration from my skins without permission.
 <img width="50" height="55" alt="image" src="https://github.com/user-attachments/assets/660b4328-26ba-42c5-a89d-2e4ca9e80770" />
