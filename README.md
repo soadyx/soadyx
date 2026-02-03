@@ -20,7 +20,7 @@
                   
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　<img width="90" height="95" alt="image" src="https://github.com/user-attachments/assets/660b4328-26ba-42c5-a89d-2e4ca9e80770" />
                              
-　　　　　　　　　　　　　　　　　𝜗ৎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&duration=2000&pause=100&color=FFA8D8&center=true&width=435&lines=True+love%2C+oh+!+True+love%2C+oh+!;True+love%2C+oh+!+True+love%2C+oh+!;Wherever+I+go+!+" alt="Typing SVG" /></a> 𝜗ৎ 
+　　　　　　　　　　　　　　　𝜗ৎ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Playfair+Display&duration=2000&pause=100&color=FFA8D8&center=true&width=435&lines=True+love%2C+oh+!+True+love%2C+oh+!;True+love%2C+oh+!+True+love%2C+oh+!;Wherever+I+go+!+" alt="Typing SVG" /></a> 𝜗ৎ 
 
 　　　　　　　　　　　　　
 　　　　　　　　　
